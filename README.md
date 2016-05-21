@@ -1,1 +1,2 @@
-# Paris
+УРУРУ ВЕЙХЕЙХУСИКИ ГДЕ МОЙ ID В МЕЖДУНАРОДНОЙ ПИС(peace)ДАТАЦЕНТРОВОЙ ПЛАТФОРМЕ КАК В ЯПОНИИ ЗАРЕКАН КАЖДЫЙ ЯПОНЕЦ # Paris
+А ЭКОЛОГИЯ НЛП: ДВИЖЕНИЕ В ТЕЧЕНИИ И КАЖДЫЕ 4 ГОДА #BITCOIN откровенная модель - верь - душа МИЛЛИОНЕР(КИЛОМЕТРООНЕР) https://youtu.be/oZuNmmSSOg0 :-)  https://pp.vk.me/c633723/v633723372/23c21/Uqg-z0-7LVI.jpg  https://pp.vk.me/c630721/v630721372/1a0f9/3Bg9OLbKDYw.jpg  https://pp.vk.me/c621529/v621529703/2ab2/Y_6Q9dUkSbs.jpg https://pp.vk.me/c419522/v419522372/9937/NVOaykT_L3s.jpg https://pp.vk.me/c419522/v419522372/9937/NVOaykT_L3s.jpg
